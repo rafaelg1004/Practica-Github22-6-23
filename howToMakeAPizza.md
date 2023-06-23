@@ -7,3 +7,4 @@ Dejarla reposar 45 minutos
 Extenderla con tus manos
 Una vez estirada, ya puedes añadir la salsa para pizza casera
 Agregar los ingrediente de tu preferencia, salami, queso verduras.
+Hornear por media hora
